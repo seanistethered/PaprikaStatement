@@ -73,8 +73,8 @@ In this one we can see that the admission is well structured and has much inform
 
 <table>
   <tr>
-    <td><img src="3.png" alt="Image 1" width="200"/></td>
-    <td><img src="4.png" alt="Image 2" width="200"/></td>
+    <td><img src="3.PNG" alt="Image 1" width="200"/></td>
+    <td><img src="4.PNG" alt="Image 2" width="200"/></td>
   </tr>
 </table>
 
