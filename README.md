@@ -107,7 +107,7 @@ Thats the truth and the claim that "SparkleChan is Sean" is very weak.
 
 ## Falsely accused by a company
 
-<img src="9.PNG" alt="Image 1" width="300"/>
+<img src="9.png" alt="Image 1" width="300"/>
 
 This is another chat snippet between the communication of paprika and Sean. The statement of Sean is solid. You just have to go to the r/Sideloaded discord server which partners with KravaSign which is the company mentioned in the screenshot. He got accused with the same LunarLeahhh thread. And he got falsely accused, because it is not proven what the information states on that thread.
 
