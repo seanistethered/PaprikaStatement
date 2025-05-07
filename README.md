@@ -78,7 +78,7 @@ In this one we can see that the admission is well structured and has much inform
   </tr>
 </table>
 
-3. The Racism was commited, although under the conditions that aquarius previously told him many bad things such as that their grandpa should hit him till he cannot have sex anymore with a girlfriend he found that was older than him self(just saying not that it can be pulled out of context). Aquarius utilised traumas in order to damadge Sean which Sean then needed to combat he did it with one statement and even saw the issue and straight corrected him self.
+3. The Racism was commited, although under the conditions that Aquarius previously told him many bad things such as that their grandpa should hit him till he cannot have sex anymore with a girlfriend he found that was older than him self(just saying not that it can be pulled out of context). Aquarius utilised traumas in order to damadge Sean which Sean then needed to combat he did it with one statement and even saw the issue and straight corrected him self. Additionally Aquarius did it because he felt jealous that he does have a girlfriend. Aquarius is also not innocent according to Sean. Sean says that Aquarius who is 21 years old sexualised a 16 year old girl in a voice chat while Sean was in that voice chat, while he instructed Aquarius to not continue Aquarius just said that its a joke although making really weird sexual statements towards that minor.
 
    <table>
      <tr>
@@ -89,9 +89,9 @@ In this one we can see that the admission is well structured and has much inform
      </tr>
    </table>
 
-4. Nothing to add. NoOp.
-
 5. Nothing to add. NoOp.
+
+6. Nothing to add. NoOp.
 
 Additionally we can see clearly that the 2nd admission was written way faster than the other one which suggests mental instability.
 
