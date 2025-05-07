@@ -115,6 +115,8 @@ This is another chat snippet between the communication of paprika and Sean. The 
 
 This thread was originally posted by Ashley(formerly known as Madeline) because she thought she was fighting for the right people but she was wrong. She apologized to Sean on discord and we can show you that. She wanted to have LunarLeahhhs account Sean didnt want to let that happen and Madeline pushed him out of his own friend circle which caused by the way the condition mentioned above at the child abuse admission [screenshots](#Admission-Screenshots).
 
+> Note: Sean still denied having posted the admission at that time, highly advising you to read his statement document
+
 <table>
   <tr>
     <td><img src="Ashley/1.PNG" alt="Image 1" width="200"/></td>
@@ -129,6 +131,8 @@ This thread was originally posted by Ashley(formerly known as Madeline) because 
 </table>
 
 The entire view of what happened in the situation also...
+
+> Note: Sean still denied having posted the admission at that time, highly advising you to read his statement document
 
 <table>
   <tr>
