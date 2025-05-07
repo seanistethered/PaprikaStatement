@@ -18,6 +18,8 @@ In this screenshot we see [the main exposed screenshot posted by paprika against
 
 Sean already admitted of writing this one in his [document](https://drive.google.com/file/d/1oeiTBmnBURNbiYjmA0aepCaZa9J3nCcl/view?usp=share_link) although he said that he lied about him self to make everyone hate him. Which is possible with his diagnosis such as ADHD, Borderline and Autism. Here is what I found in my long-term research. I will also highlight the points that matter the most.
 
+> Also I might wanna mentioned that especially when falsely admitted, someone would denie about having ever written such an admission, even in a BPD episode.
+
 **1. BPD**
 
 **People with BPD often struggle with**:
